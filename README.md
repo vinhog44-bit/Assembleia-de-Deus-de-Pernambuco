@@ -1,0 +1,1 @@
+# Assembleia-de-Deus-de-Pernambuco
